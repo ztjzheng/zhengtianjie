@@ -1,2 +1,0 @@
-# zhengtianjie
-tupian
